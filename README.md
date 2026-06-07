@@ -1,4 +1,4 @@
-# Hi, I'm Rajmim94 👋
+# Hi, I'm Márton Rajmund 👋
 
 Furniture & retail equipment designer at **Eurato SA** (Frig Comercial division), working across 3D visualization, quotation systems, warehouse management, and full-cycle furniture design — from concept to delivery.
 
